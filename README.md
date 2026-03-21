@@ -6,7 +6,7 @@
    <p align="center"> <samp>$\color{pink}{\textsf{nonbinary ❤︎ ‬gay-aroace}}$</samp>  
 <p align="center"> <kbd>Chilean</kbd> <kbd>ESP/ENG</kbd>
 
-ㅤㅤㅤㅤㅤ  ⠀   ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀  ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ![](https://komarev.com/ghpvc/?username=brushworkk-username&label=AU's+visited&color=d2c09c)
+ㅤㅤㅤㅤㅤ  ⠀   ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀  ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ![](https://komarev.com/ghpvc/?username=brushworkk-username&label=AU's+visited&color=d2c09c)
 
 
 ![](https://64.media.tumblr.com/b1daaa70389ae2af97e7189598e0054b/404186fd920200f1-0d/s2048x3072/820e9379d64b45601552349b6d4303bb92499ac5.pnj)
