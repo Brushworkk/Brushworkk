@@ -45,4 +45,4 @@
 
 ![](https://64.media.tumblr.com/a0cb23692bcce9a31d01de31f2640c19/404186fd920200f1-89/s1280x1920/82516c11f355732c5dabb48fdca3a13cd5669b94.pnj)
  
- > Creds: [1](https://www.tumblr.com/inksplotch00/774576784206331904/ink-sand-stuff-stamps-n-banners-i-made) [2](https://www.tumblr.com/inksplotch00/790149951464292352/more-inky-things-%E0%B9%91-%E1%B4%97-%E0%B9%91-created-some-graphics?source=share)
+ > Creds: [1](https://www.tumblr.com/inksplotch00/774576784206331904/ink-sand-stuff-stamps-n-banners-i-made) [2](https://www.tumblr.com/inksplotch00/790149951464292352/more-inky-things-%E0%B9%91-%E1%B4%97-%E0%B9%91-created-some-graphics?source=share) [3](https://www.tumblr.com/c0l0rfully/810654000622010368/hello-my-little-bones-i-dont-know-what-this-is?source=share)
