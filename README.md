@@ -3,7 +3,7 @@
 
  <p align="center">   $\color{#d2c09c}{  𓊈Ink~༘⋆ Varnish!𓊉}$ 
   <p align="center"> <samp>$\color{pink}{\textsf{it/he ᝰ🖌. 18yo}}$</samp>  
-   <p align="center"> <samp>$\color{pink}{\textsf{nonbinary ❤︎ ‬gay-aroace}}$</samp>  
+   <p align="center"> <samp>$\color{pink}{\textsf{nonbinary ❤︎ ‬gay-doubledemi}}$</samp>  
 <p align="center"> <kbd>Chilean</kbd> <kbd>ESP/ENG</kbd>
 
 ㅤㅤㅤㅤㅤ  ⠀   ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀  ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ![](https://komarev.com/ghpvc/?username=brushworkk-username&label=AU's+visited&color=d2c09c)
