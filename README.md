@@ -32,6 +32,7 @@
    <p align="center"> <samp>$\color{red}{\textsf{.✦ ݁˖ Idgaf about ships or shipchilds as long as they arent illegal or problematic so feel free 2 int}}$</samp>  
    <p align="center"> <samp>$\color{pink}{\textsf{๋࣭ ⭑ I don't roleplay much if i even do at all so shrugg, idm watching or being dragged into it}}$</samp>  
     <p align="center"> <samp>$\color{lightyellow}{\textsf{๋࣭ ⭑ Dni if ure like 14 and if ure younger than me PLS dont joke flirt to me or anythin like that}}$</samp>  
+       <p align="center"> <samp>$\color{lightyellow}{\textsf{๋࣭ ⭑ ALSO DNI IF YOU MAKE SEXUAL JOKES LIKE TOO MUCH/THATS ALL YOU DO AT SAFE SERVER EWWW U GUYS REMIND ME OF THE OLD UNDERTALE AMINO 3:}}$</samp>  
      <p align="center"> <samp>$\color{#d2c09c}{\textsf{๋࣭ ⭑ if ure my age then i dont really care much as long as it isnt gen evil or WAY over the top}}$</samp>  
      <p align="center"> <samp>$\color{olive}{\textsf{๋࣭ ⭑ i have an AWFUL memory so its normal if i dont remember lots of things and just go ?}}$</samp> 
        <p align="center"> <samp>$\color{#696969}{\textsf{๋࣭ ⭑TIP: keywords DO make me somehow remember certain stuff so sometimes thats the way}}$</samp>  
