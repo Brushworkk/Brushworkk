@@ -2,7 +2,7 @@
 ![](https://64.media.tumblr.com/beeee2c4b07c6ae2206baef6b855285b/404186fd920200f1-d8/s1280x1920/f202777987d472c9193dfb22df9808d4d1c50ce1.pnj)
 
  <p align="center">   $\color{#d2c09c}{  𓊈Ink~༘⋆ Varnish!𓊉}$ 
-  <p align="center"> <samp>$\color{pink}{\textsf{it/he ᝰ🖌. 18yo}}$</samp>  
+  <p align="center"> <samp>$\color{pink}{\textsf{it/he ᝰ🖌. 19yo}}$</samp>  
    <p align="center"> <samp>$\color{pink}{\textsf{nonbinary ❤︎ ‬gay-doubledemi}}$</samp>  
 <p align="center"> <kbd>Chilean</kbd> <kbd>ESP/ENG</kbd>
 
